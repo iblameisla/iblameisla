@@ -4,7 +4,10 @@
 - collab with me sometimes maybe
 - u can reach me by my email, lightybeamdd@gmail.com.
 - if you have kids with me they will be very pretty kids
-- these projects are mostly hobby and stupid dumb projects. if you want actual good projects find it somewhere else. paws-on.top !
+- these projects are mostly hobby and stupid dumb projects. if you want actual good projects find it somewhere else.
+- i may occasionally drop a good project.
+
+- pro skid
 
 <!---
 lighty.is-a.dev
